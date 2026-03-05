@@ -1,2 +1,2 @@
 DP On Fire
-GOGOGO
+GOGOG
